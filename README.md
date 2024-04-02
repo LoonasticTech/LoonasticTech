@@ -11,6 +11,7 @@
 ☆
 ╰➜ Main Fandoms: Pokémon, Spooky Month, Roblox ( any game ), Minecraft, RainWorld, Eddsworld, I slightly like the helluva boss show, Invader Zim, My Little Pony, Pony Town, Cookie Run, Digimon, Pretty Blood  ° . ≠ . ıllıllı . ꒷꒦
 
+
 »»———-*.·:·.✧ ✦———-««
 𝙉𝙤𝙩 𝙢𝙮 𝙩𝙝𝙤𝙪𝙜𝙝𝙩𝙨 𝙤𝙧 𝙛𝙚𝙚𝙡𝙞𝙣𝙜𝙨, 𝙄 𝙖𝙢 𝙣𝙤𝙩 𝙢𝙮 𝘿𝙉𝘼 
 »»———-*.·:·.✧ ✦———-««
@@ -22,6 +23,7 @@
 ☆
 ╰➜ 💫 boundaries : I only let a specific type of people flirt with me, Please avoid covering me I have the screen zoomed out so if I walk i won't know where i am. ( pony town exclusive ) also do not copy my skins. Basic DNI criteria, and any tomtord shippers get away from me ty.  ° . ≠ . ıllıllı . ꒷꒦
 
+
 »»———-*.·:·.✧ ✦———-««
 𝙄 𝙖𝙢 𝙩𝙝𝙚 𝙤𝙗𝙨𝙚𝙧𝙫𝙚𝙧, 𝙄'𝙢 𝙖 𝙬𝙞𝙩𝙣𝙚𝙨𝙨 𝙤𝙛 𝙡𝙞𝙛𝙚
 »»———-*.·:·.✧ ✦———-««
@@ -32,6 +34,8 @@
 ┊  ✦ ₊° . Spooky Monthers please please INT with me. I'm a heavy Kevin fictionkin. 
 ☆
 ╰➜ My discord is " .ryomahoshi " dot included. ° . ≠ . ıllıllı . 🪵
+
+
 
 »»———-*.·:·.✧ ✦———-««
 𝙄 𝙡𝙞𝙫𝙚 𝙞𝙣 𝙩𝙝𝙚 𝙨𝙥𝙖𝙘𝙚 𝙗𝙚𝙩𝙬𝙚𝙚𝙣 𝙩𝙝𝙚 𝙨𝙩𝙖𝙧𝙨 𝙖𝙣𝙙 𝙩𝙝𝙚 𝙨𝙠𝙮
