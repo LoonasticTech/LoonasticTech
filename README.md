@@ -9,7 +9,7 @@
 ┊  ┊° .✫ ﾟ. ꒷꒦ They/Them mostly but I don't mind He/Him either
 ┊  ✦ ₊° . 🪐Homoromantic ( men ) asexual polyamorous. 
 ☆
-╰➜ Main Fandoms: Pokémon, Spooky Month, Roblox ( any game ), Minecraft, RainWorld, Eddsworld, I slightly like the helluva boss show, Invader Zim, My Little Pony, Pony Town, Cookie Run, Digimon, Pretty Blood  ° . ≠ . ıllıllı . ꒷꒦
+╰➜ Main Fandoms: Pokémon, Spooky Month, Roblox ( except phighting and Kaiju Paradise ), Minecraft, RainWorld, Eddsworld, I slightly like the helluva boss show, Invader Zim, My Little Pony, Pony Town, Cookie Run, Digimon, Pretty Blood  ° . ≠ . ıllıllı . ꒷꒦
 
 
 »»———-*.·:·.✧ ✦———-««
@@ -30,8 +30,8 @@
 ┊  ┊  ┊  ┊  ┊
 ┊  ┊  ┊  ┊  ★ ₊ . ° . ⋆
 ┊  ┊  ┊. ✧ ° . • I'm a piscis if that interests you for my birthday.  🌲
-┊  ┊° .✫ ﾟ. 🌙 I'm single and I'm looking, but I have some interests for now. 
-┊  ✦ ₊° . Spooky Monthers please please INT with me. I'm a heavy Kevin fictionkin. 
+┊  ┊° .✫ ﾟ. 🌙 I'm taken, I have no interest on looking for another person rn. 
+┊  ✦ ₊° . Spooky Monthers please please INT with me. We're a system. The carrd and pronounspage explain it a bit more. 
 ☆
 ╰➜ My discord is " .ryomahoshi " dot included. ° . ≠ . ıllıllı . 🪵
 
